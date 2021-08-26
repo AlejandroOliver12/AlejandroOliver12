@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AlejandroOliver12
 - 👀 I’m interested in informatic security
-- 🌱 
+- 🌱 I like to play minecraft
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
